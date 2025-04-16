@@ -1,1 +1,1 @@
-[minicrit.games](https://www.minicrit.games/)
+[minicritgames.com](https://minicritgames.com/)
